@@ -1,1 +1,1 @@
-Mridul Sachdeva <br> OPS445 LECNDD
+Mridul Sachdeva <br> OPS445 LEC NDD
